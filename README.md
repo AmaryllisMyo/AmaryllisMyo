@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Amaryllis!
+- 👀 I’m interested in Technical Art, UI/UX Design and Art 
+- 😄 Pronouns: they/them
